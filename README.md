@@ -37,8 +37,80 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The first parte of the Mirour for magistrates containing the falles of the first infortunate princes
+
+1. The contentes of the Booke.
+
+1. Loue and liue, TO THE NOBILITIE and all other in office, God graunt the increase of wysedome, with all thinges necessarie for preseruacion of their estates, Amen.
+
+1. I. Higgins to the Reader.
+
 #####Body#####
+
+1. The Authours induction.
+
+1. Albanacte the yongest sonne of Brutus, telles of the finding of this lande, his fathers life, and his owne infortunate fall. He liued about the yeare before Christe. 1074.
+The Authour.WYth that the vvounded Prince departed quite,From sight he slinckte, I savv his shade no
+    _ The Authour.
+
+    _ Humber the king of Hunnes shewes how he minding to conquere this land vvas drowned. &c. He liued about the yeare before Christ. 1074.
+The Authoure.THen vanishte Humber, and no sooner gonVVas he but straight in place before me came.A p
+    _ The Authoure.
+
+    _ Locrinus the eldest sonne of Brutus, declareth his slaughter to haue happened for his euill life. He died the yeare before Christe. 1064.
+The Authour.WIth that this king, vvas vanisht quite and gone:And as a miste, dissolued into ayre:And
+    _ The Authour.
+
+    _ Elstride the concubine of Locrinus myserably drowned by Gwendoline his vvyfe, declares her presumption, lewde life and infortunate fall. She suffered before Christe. 1064.
+The Authoure.VVIth that she flitted in the ayre abrode,As twere a miste or smoke dissolued quite,And
+    _ The Authoure.
+
+    _ Sabrine the base childe of Locrinus, telles howe she was pitifully drowned by his wyfe Guendoline, in reuenge of hir fathers adulterye. The yeare before Christe, 1064.
+The Authour.WIth that the Lady Sabrine slinckt from sight,I lookt about, and then me thought againeA
+    _ The Authour.
+
+    _ Madan shewes how for his euill life he was 〈◊〉 of Wolues, the yeare before Christe. 1009.
+The Authoure.VVHen this was said, no more was Madan sene,(If it were he) but sure I halfe suspecteIt
+    _ The Authoure.
+
+    _ Manlius declares how he minding to kill his brother for the kingdome was by him slayne. The yeare before Christe. 1008.
+The Authour,VVHen Manlius had thus endid quite his tale,He vanishte out of sight as did the reste:An
+    _ The Authour,
+
+    _ Mempricius giuen all to luste, pleasure and the sinne of Sodomye: telles how he was deuoured of wolues. The yeares before Christ. 989.
+The Authour.ON this mee thought he vanishte quite avvay,And I vvas left vvith Morpheus all alone:VVh
+    _ The Authour.
+
+    _ Bladud recyteth howe he Practisinge by curious arts to flye, fell and brake his necke. The yeare before Christe. 844:
+The Authour.WHen Bladud thus had ended quite his tale,And tolde his life as you haue hearde before:H
+    _ The Authour.
+
+    _ Cordila shewes how by despaire when she was in prison she slue herselfe. the yeare before Christe. 800.
+The Authour.NOw, when this desperate Queene had ended thusHir tale, and told what haplesse grace she
+    _ The Authour.
+
+    _ Morgan telles how he wadgeing warre with his cosin Conidagus was slaine at the place yet called Glamorgan, the yeare before Christe. 766.
+The Authoure.VVIth that Morganus quickly past away,The night me thought likewise was far epastVVherb
+    _ The Authoure.
+
+    _ Forrex declares howe hee mynding to kill his brother whiche ruled with him (that he might therby raigne alone) was by him slayne. About the yeare before Christe. 491.
+The Authour.WHen as king Forrex thus had tolde his tale,Me thought he stay de no whit but went his w
+    _ The Authour.
+
+    _ Porrex recites howe for the slaughter of his brother, he was slayne by his owne mother and hir maydens, as he laye sleeping. About the yeare before Christe. 491.
+The Authour.NExt after Porrex came another such,Had all his body quite in peeces rent:A desperate ma
+    _ The Authour.
+
+    _ Kimarus shewes howe for his euill life he was deuoured by wilde beastes, the yeare before Christ 321.
+The Authour.ON this Kimarus lefte me all alone,And so did Morpheus, then I thought to reste:But yet 
+    _ The Authour.
+
+    _ Morindus a bastarde, declares how hee was 〈◊〉 to the kingdome, wared cruell, and at laste was deuoured by a monster, the yeare before Christe. 303.
+The Authour.I Could not thus departe to take my reste,For Morpheus bad me byde and heare the Iaste."
+    _ The Authour.
+
+    _ Nennius a worthy Britayne, the very paterne of a valiaunt, noble, and faithful subiecte encountring with Iulius Caesar at his firste comming into this Islande, was by him death wounded, yet nathelesse he gate Caesars swoorde: put him to flighte: slewe therewith Labienus a Tribune of the Romaynes, endured fight till his countrey men wan the battayle, died fiftene dayes after. And nowe encourageth all good subiectes to defende their countrey from the powre of foraine and vsurping enemies. About the yeare before Christe. 50.
+
+1. The Authour.
 
 **Types of content**
 
